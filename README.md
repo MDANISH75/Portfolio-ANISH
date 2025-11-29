@@ -39,6 +39,7 @@ Link: https://mdanish75.github.io/Portfolio-ANISH/
 
 For any queries or collaboration, feel free to reach out.
 
-Email: your email  
-LinkedIn: your link  
-GitHub: your profile  
+Email:anishm07545@gmail.com 
+LinkedIn:[ your link](https://www.linkedin.com/in/md-anish-134228245/)  
+
+
